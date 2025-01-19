@@ -1,7 +1,7 @@
 **Sooriya Arachchilage Heshan Dinuka Lakmal**
 
 
-[My Goals](https://docs.google.com/document/d/11z_rhPXpZ5Q-miLBnzb_i65FM99VVJIHu6x4Aou-tAE/edit?usp=sharing)
+[My Goals](https://drive.google.com/file/d/1qXl3o4cHBWNqCCDqtRCWtoGr7uotAk8u/view?usp=sharing)
 
 [Sitemap](https://www.gloomaps.com/RlsT3V4XdY)
 
