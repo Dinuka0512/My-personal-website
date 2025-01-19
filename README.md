@@ -13,5 +13,6 @@ Figma Designs
 >  [For Tablet 📱](https://www.figma.com/design/BFfdMwEfdDrsY0rBdVAbix/MyPortfolio?node-id=217-690&t=UWmnWJgz2YfTa2RQ-1)
 >  [For Desktop 🖥️](https://www.figma.com/design/BFfdMwEfdDrsY0rBdVAbix/MyPortfolio?node-id=247-97&t=UWmnWJgz2YfTa2RQ-1)
 
-https://github.com/user-attachments/assets/9a26a6fe-3a58-47e3-ab0a-d1c86d299afc
 
+_Figma Design Preview_ - 
+https://github.com/user-attachments/assets/07fefc31-9a24-4456-b85d-186e010e777d
